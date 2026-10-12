@@ -1,0 +1,1 @@
+-Gambar yang digunakan pada website di generate menggunakan Canva AI
